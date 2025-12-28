@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a pursuing my Btech in (AI/DS)<br>
+
 
 
 ## 🌐 Socials:

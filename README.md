@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a persuing my btech <br>
+I am a peursuing my btech <br>
 
 
 ## 🌐 Socials:
